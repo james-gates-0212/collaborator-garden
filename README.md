@@ -1,5 +1,5 @@
 # Collaborator Garden
 
-We can discuss on this respository.
+Special collaborator wait here.
 
-Feel free to connect with me.
+Could you work with me?
